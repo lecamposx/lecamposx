@@ -5,4 +5,4 @@
 -amo o meu namorado
 - amo aprender coisas novas e sou incrivel e gatinha
 -adoro gastar o dinheiro que eu nao tenho
--sou ENTP (vulgo os melhores
+  
